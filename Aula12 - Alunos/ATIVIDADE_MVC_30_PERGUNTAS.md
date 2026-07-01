@@ -16,8 +16,8 @@
 
 **Identificação**
 
-- Nome: _______________________________
-- Turma: _______________________________
+- Nome: Bernardo Magalhães Santos (TMJ Janaina)
+- Turma: 3B1
 
 ---
 
